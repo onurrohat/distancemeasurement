@@ -10,3 +10,7 @@ w= distance in bits
 
 
 ![Untitled](https://user-images.githubusercontent.com/77878848/228067340-f270544d-ab4f-4a1a-99cd-3b91f78403c5.png)
+
+
+
+For your questions send an email to onurrohatoktay@gmail.com
